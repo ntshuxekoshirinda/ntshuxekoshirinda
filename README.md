@@ -1,6 +1,6 @@
 ## Hi, I am Ntshuxeko 🙌
 
-Over 5 years experience in Business Management 🕴️
+Over 11 years experience in Business Management 🕴️
 
 Information Technology Graduate 🧑‍💻
 
